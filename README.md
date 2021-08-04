@@ -6,6 +6,5 @@ My interests include:
 - Videogames
 - Music (Rock n' roll, bachata, traditional Greek motherland stuff)
 - Red wine
-- Traveling
 
 Looking forward to working on projects in this great online community :blush:
